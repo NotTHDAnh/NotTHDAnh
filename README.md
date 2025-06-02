@@ -1,5 +1,3 @@
-## 💫 About Me:
-
 ## 🚀 About Me
 
 - 📫 Reach me at: **daisreal0811@gmail.com**
